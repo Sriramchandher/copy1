@@ -1,2 +1,5 @@
-god of thunder worthy
-because that's what heroes do
+
+THOR the strongest avenger;
+
+god of thunder, worthy
+>>>>>>> add-headings
